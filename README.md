@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-<img src="https://sv1.picz.in.th/images/2021/11/28/6KwWZR.gif" alt="6KwWZR.gif" border="0" />
+<img src="https://sv1.picz.in.th/images/2021/06/04/PJse0I.jpg" alt="PJse0I.jpg" border="0" />
 </p>
 
 <p align="center">
