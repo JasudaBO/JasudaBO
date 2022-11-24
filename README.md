@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-<img src="https://sv1.picz.in.th/images/2021/06/11/s49f0n.jpg" alt="s49f0n.jpg" border="0" />
+<img src="https://img68.com/images/2022/11/06/logo11_6_2397.png" alt="logo11_6_2397.png" border="0" />
 </p>
 
 <p align="center">
